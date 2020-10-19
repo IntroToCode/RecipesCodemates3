@@ -6,13 +6,21 @@
 
 ## Ingredients:
 2 Cups Quinoa
+
 4 Cups Water
+
 1 Tablespoon Dry Ranch Dressing Packet
+
 1 Pound Chicken Breasts
+
 1/2 Cup BBQ Sauce + More To Top
+
 2 Cups Kale, Roughly Chopped
+
 1 Cup Monterey Jack Cheese, Shredded
+
 1 Avocado, Diced
+
 1 Lime
 
 
@@ -30,7 +38,7 @@ Drizzle chicken with extra BBQ sauce and top with squeezed lime juice
 
 
 ### Notes:
-Taken from More Momma
+Taken from More Momma. Adelaida did not want to grace us with a cure for hangovers from Colombia, her beautiful country. She is being a bore.
 
 
 ### Codemates # 3 
