@@ -16,6 +16,7 @@
 
 ### Notes:
 
-
+Not fun - should be Colombian!!
 
 ### Codemates #
+Group 3 rocks !!
