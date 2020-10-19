@@ -2,7 +2,7 @@
 
 ## Servings: 4
 
-## Time to prepare: 20 minutes
+## Time to prepare: 20 minutes (or 30 minutes if you are a slowpoke)
 
 ## Ingredients:
 2 Cups Quinoa
