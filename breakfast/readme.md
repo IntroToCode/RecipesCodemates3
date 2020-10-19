@@ -20,7 +20,7 @@ Flipt it
 
 
 ### Notes:
-Tata's special recipe for breakfasts after a night of party. It is said to lift even the dead from their grave. 
+Tata's special recipe for breakfasts after a night of party. It is said to lift even the dead from their grave. (This recipe is also great for the elderly and children who struggle to chew.)
 
 
 ### Codemates #
