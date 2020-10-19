@@ -24,4 +24,4 @@ Tata's special recipe for breakfasts after a night of party. It is said to lift 
 
 
 ### Codemates #
-Group 3. Thais, Jose, Temma, Adelaida, and Eduardo.
+Group 3. Thais Esteves, Jose Avalos, Temma Abe, Adelaida Valencia, and Eduardo Guaraieb.
